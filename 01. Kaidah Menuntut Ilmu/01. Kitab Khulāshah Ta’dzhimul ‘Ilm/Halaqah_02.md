@@ -8,7 +8,7 @@
 السلام عليكم ورحمة اللّه وبركاته  
 الحمد لله، والصلاة والسلام على رسول الله، وعلى آله وصحبه ومن والاه  
 
-Halaqah yang ke-2 dari rangkaian Silsilah ‘Ilmiyyah pembahasan Kitāb *Khulāshah Ta’dzhimul ‘Ilm* karya Fadhilatusy Syaikh Shalih bin Abdillah bin Hamad Al-Ushaimi, hafidzahullahu ta’ala.  
+Halaqah yang ke-2 dari pembahasan Kitāb *Khulāshah Ta’dzhimul ‘Ilm* karya Fadhilatusy Syaikh Shalih bin Abdillah bin Hamad Al-Ushaimi, hafidzahullahu ta’ala.  
 
 Pada bagian ini, beliau mulai masuk ke kitab dengan muqaddimah, yang tentu saja dimulai dengan basmalah:  
 
