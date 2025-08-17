@@ -1,4 +1,4 @@
-# Khulāshah Ta’dzhimul ‘Ilm
+# Muqaddimah Kitab Khulāshah Ta’dzhimul ‘Ilm
 
 **Kitab**: Khulāshah Ta’dzhīmul ‘Ilm  
 **Pengajar**: Ustadz Dr. Abdullah Roy, M.A  A  
