@@ -1,4 +1,4 @@
-# Khulāshah Ta’dzhīmul ‘Ilm – Halaqah 2
+# Muqaddimah Kitab Ta’dzimul ‘Ilmi
 
 **Kitab**: Khulāshah Ta’dzhīmul ‘Ilm  
 **Pengajar**: Ustadz Dr. Abdullah Roy, M.A  
