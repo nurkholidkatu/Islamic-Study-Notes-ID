@@ -1,6 +1,3 @@
 # Belajar Agama Islam
 
-Repository ini berisi materi hasil rangkuman belajar Islam saya.
-
-## Daftar Materi
-1. [Kaidah Menuntut Ilmu](01. Kaidah Menuntut Ilmu)
+Repository ini berisi catatan sederhana dari hasil belajar saya, yang masih jauh dari sempurna. Semoga bisa menjadi pengingat pribadi dan bermanfaat bagi siapa saja yang membacanya.
