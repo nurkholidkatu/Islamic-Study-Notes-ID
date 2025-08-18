@@ -1,6 +1,6 @@
 # Belajar Agama Islam
 
-Catatan sederhana dari hasil belajar saya, masih jauh dari sempurna.  
+Catatan sederhana dari hasil belajar diri ini, masih jauh dari sempurna.  
 Semoga menjadi pengingat pribadi dan bermanfaat bagi siapa saja yang membaca.
 
 ## Daftar Materi
