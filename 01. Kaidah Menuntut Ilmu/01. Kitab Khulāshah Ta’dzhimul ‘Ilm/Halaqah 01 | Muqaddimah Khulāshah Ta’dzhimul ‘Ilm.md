@@ -1,4 +1,4 @@
-# Muqaddimah Kitab Khulāshah Ta’dzhimul ‘Ilm
+# Halaqah 01 | Muqaddimah Khulāshah Ta’dzhimul ‘Ilm
 
 **Kitab**: Khulāshah Ta’dzhīmul ‘Ilm  
 **Pemateri**: Ustadz Dr. Abdullah Roy, M.A  A  
