@@ -1,4 +1,4 @@
-# Halaqah 03 | Simpul 1 – Membersihkan Wadah Ilmu  
+# Halaqah 03 | Simpul 01 – Membersihkan Wadah Ilmu  
 Kitab: Khulāshah Ta’dzhimul ‘Ilm  
 Pemateri: Ustadz Dr. Abdullah Roy, M.A  
 
