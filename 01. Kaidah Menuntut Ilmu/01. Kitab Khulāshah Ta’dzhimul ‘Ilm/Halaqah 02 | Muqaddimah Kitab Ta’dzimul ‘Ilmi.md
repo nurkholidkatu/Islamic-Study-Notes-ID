@@ -1,4 +1,4 @@
-# Muqaddimah Kitab Ta’dzimul ‘Ilmi
+# Halaqah 02 | Muqaddimah Kitab Ta’dzimul ‘Ilmi
 
 **Kitab**: Khulāshah Ta’dzhīmul ‘Ilm  
 **Pemateri**: Ustadz Dr. Abdullah Roy, M.A  
