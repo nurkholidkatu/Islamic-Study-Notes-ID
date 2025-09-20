@@ -1,9 +1,7 @@
-````markdown
 # Halaqah 11 | Simpul 08 – Melazimi dan Sedikit Demi Sedikit Dalam Menuntut Ilmu
 
 **Kitab:** Khulāshah Ta'dzhīmul 'Ilm  
-**Audio:** Ustadz Dr. Abdullah Roy, M.A.  
-**Transkrip:** ilmiyyah.com  
+**Pemateri:** Ustadz Dr. Abdullah Roy, M.A. 
 
 ---
 
@@ -161,16 +159,4 @@ Orang yang ingin mengagungkan ilmu, maka dia menempuh caranya—yaitu dengan car
 
 Itulah yang bisa kita sampaikan pada halaqah kali ini. Semoga bermanfaat. Sampai bertemu kembali pada halaqah selanjutnya.
 
-<p align="right">والسلام عليكم ورحمة الله وبركاته</p>  
-
-```css
-<style>
-  p {
-    text-align: justify;
-    text-justify: inter-word;
-  }
-</style>
-````
-
-```
-```
+<p align="right">والسلام عليكم ورحمة الله وبركاته</p> 
