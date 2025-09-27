@@ -9,7 +9,7 @@
 <p align="right">الحمد لله والصلاة والسلام على رسول الله وعلى آله وصحبه ومن والاه</p>  
 
 <div align="justify">
-Ini adalah Halaqah yang ke-13 dari Silsilah ‘Ilmiyyah Pembahasan Kitāb *Khulāshah Ta’dzhimul ‘Ilm* yang ditulis oleh Fadhilatu Syaikh Shālih Ibn Abdillāh Ibn Hamad Al-Ushaimi Hafidzahullāhu Ta’ala.
+Ini adalah Halaqah yang ke-13 dari Silsilah ‘Ilmiyyah Pembahasan Kitāb Khulāshah Ta’dzhimul ‘Ilm yang ditulis oleh Fadhilatu Syaikh Shālih Ibn Abdillāh Ibn Hamad Al-Ushaimi Hafidzahullāhu Ta’ala.
 </div>
 
 ---
