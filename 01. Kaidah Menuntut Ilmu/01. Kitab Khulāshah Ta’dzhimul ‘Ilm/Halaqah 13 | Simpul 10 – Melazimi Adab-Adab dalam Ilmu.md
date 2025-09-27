@@ -1,7 +1,7 @@
 # Halaqah 13 | Simpul 10 – Melazimi Adab-Adab dalam Ilmu
 
-**Kitab:** Khulāshah Ta’dzhimul ‘Ilm  
-**Pemateri:** Ustadz Dr. Abdullah Roy, M.A.
+**Kitab: Khulāshah Ta’dzhimul ‘Ilm  
+Pemateri: Ustadz Dr. Abdullah Roy, M.A.**
 
 ---
 
@@ -9,7 +9,7 @@
 <p align="right">الحمد لله والصلاة والسلام على رسول الله وعلى آله وصحبه ومن والاه</p>  
 
 <div align="justify">
-Ini adalah Halaqah yang ke-13 dari Silsilah ‘Ilmiyyah Pembahasan Kitāb Khulāshah Ta’dzhimul ‘Ilm yang ditulis oleh Fadhilatu Syaikh Shālih Ibn Abdillāh Ibn Hamad Al-Ushaimi Hafidzahullāhu Ta’ala.
+Ini adalah Halaqah yang ke-13 dari Silsilah ‘Ilmiyyah Pembahasan Kitāb Khulāshah Ta’dzhimul ‘Ilm yang ditulis oleh Fadhilatu Syaikh Shālih Ibn Abdillāh Ibn Hamad Al-Ushaimi hafidzahullāhu ta’ala.
 </div>
 
 ---
@@ -17,7 +17,7 @@ Ini adalah Halaqah yang ke-13 dari Silsilah ‘Ilmiyyah Pembahasan Kitāb Khulā
 ## <p align="right">المعقد العاشر (Simpul yang Ke-10)</p>
 
 <div align="justify">
-Simpul yang ke-10, prinsip yang ke-10 yang dengannya kita bisa mewujudkan pengagungan kita terhadap ilmu adalah **ملازمة آداب العلم** (melazimi adab-adab dalam ilmu). Maksudnya, kita harus memperhatikan dan menjaga adab-adabnya ketika ingin mendapatkan ilmu.
+Simpul yang ke-10, prinsip yang ke-10 yang dengannya kita bisa mewujudkan pengagungan kita terhadap ilmu adalah ملازمة آداب العلم (melazimi adab-adab dalam ilmu). Maksudnya, kita harus memperhatikan dan menjaga adab-adabnya ketika ingin mendapatkan ilmu.
 </div>
 
 <div align="justify">
@@ -32,7 +32,7 @@ Tapi kalau kita katanya ingin menuntut ilmu tapi tidak memperhatikan adab-adabny
 
 ## Pentingnya Adab dalam Menuntut Ilmu
 
-**Berkata Ibnul Qayyim dalam kitab beliau *Madārijus Sālikīn*:**
+Berkata Ibnul Qayyim dalam kitab beliau Madārijus Sālikīn:
 
 <p align="right">"أدبُ المرء عنوان سعادته وفلاحه"</p>  
 <div align="justify">(Adab seseorang adalah tanda kebahagiaan dan kesuksesannya.)</div>
@@ -76,7 +76,7 @@ Dia punya kedudukan tapi kalau tidak punya adab, dia akan rendah di hadapan manu
 Seorang penuntut ilmu harus menjaga kehormatannya. Demikian pula adab ketika di dalam halaqah ilmu, dia harus konsentrasi, mencatat, dan tidak menyibukkan diri dengan yang lain. Juga adab ketika bersama guru dan teman-temannya. Yang berhak mendapatkan ilmu adalah orang-orang yang menjaga adab-adab tersebut.
 </div>
 
-**Berkata Yusuf Ibnul Husain:**
+Berkata Yusuf Ibnul Husain:
 
 <p align="right">"بالأدب تفهم العلم"</p>  
 <div align="justify">(Dengan adab, kamu bisa memahami ilmu.)</div>
@@ -94,10 +94,10 @@ Karena orang yang beradab dilihat sebagai orang yang pantas untuk mendapatkan il
 ## Perhatian Para Salaf terhadap Adab
 
 <div align="justify">
-Dari sinilah para Salaf – *rahimahumullāh* – memperhatikan masalah mempelajari adab, sebagaimana mereka memperhatikan mempelajari ilmu.
+Dari sinilah para Salaf – rahimahumullāh – memperhatikan masalah mempelajari adab, sebagaimana mereka memperhatikan mempelajari ilmu.
 </div>
 
-**Berkata Ibn Sirin:**
+Berkata Ibn Sirin:
 
 <p align="right">"كانوا يتعلَّمون الهدى كما يتعلَّمون العلم"</p>  
 <div align="justify">(Dahulu mereka mempelajari adab (petunjuk) sebagaimana mereka mempelajari ilmu.)</div>
@@ -110,7 +110,7 @@ Mereka mempelajari adab guru dan murid sebelum mempelajari ilmu.
 Bahkan, sebagian mereka mendahulukan mempelajari adab sebelum mempelajari ilmu. Karena jika tidak belajar adab dulu, bisa jadi cara bertanya atau bergaulnya tidak beradab, sehingga merusak semuanya.
 </div>
 
-**Berkata Imam Malik bin Anas kepada seorang pemuda Quraisy:**
+Berkata Imam Malik bin Anas kepada seorang pemuda Quraisy:
 
 <p align="right">"يا ابن أخي، تعلَّمِ الأدب قبل أن تتعلَّمَ العلم"</p>  
 <div align="justify">(Wahai anak saudaraku, pelajarilah adab sebelum engkau mempelajari ilmu.)</div>
@@ -119,7 +119,7 @@ Bahkan, sebagian mereka mendahulukan mempelajari adab sebelum mempelajari ilmu. 
 Dan mereka menampakkan kebutuhan mereka terhadap adab.
 </div>
 
-**Pada suatu hari, Makhlad ibnul Husain berkata kepada Ibnul Mubarak:**
+Pada suatu hari, Makhlad ibnul Husain berkata kepada Ibnul Mubarak:
 
 <p align="right">"نحن إلىٰ كثيرٍ من الأدب أحوج منَّا إلىٰ كثيرٍ من العلم"</p>  
 <div align="justify">(Kita lebih membutuhkan banyak adab daripada banyak ilmu.)</div>
@@ -128,7 +128,7 @@ Dan mereka menampakkan kebutuhan mereka terhadap adab.
 Mereka mewasiatkan dan menganjurkan untuk mempelajari adab.
 </div>
 
-**Berkata Imam Malik:**
+Berkata Imam Malik:
 
 <div align="justify">
 Dahulu ibuku mendandaniku dengan sorban dan berkata kepadaku, "Pergilah kepada Rabi'ah" – yang dimaksud adalah Ibnu Abdi Abdurrahman, ahli fikih penduduk Madinah di zamannya – "dan belajarlah darinya adabnya sebelum ilmunya."
@@ -146,7 +146,7 @@ Ini menunjukkan bagaimana para ibu menekankan masalah adab sebelum ilmu.
 Sesungguhnya banyak penuntut ilmu di zaman sekarang tidak mendapatkan ilmu karena mereka menyia-nyiakan adab.
 </div>
 
-**Al-Laits bin Sa'ad pernah mendatangi para penuntut ilmu hadits. Ketika melihat mereka, beliau melihat sesuatu yang tidak beliau sukai.**  
+Al-Laits bin Sa'ad pernah mendatangi para penuntut ilmu hadits. Ketika melihat mereka, beliau melihat sesuatu yang tidak beliau sukai.  
 <div align="justify">Beliau berkata, "Apa ini? Kalian lebih butuh kepada sedikit adab daripada banyak ilmu."</div>
 
 <div align="justify">
