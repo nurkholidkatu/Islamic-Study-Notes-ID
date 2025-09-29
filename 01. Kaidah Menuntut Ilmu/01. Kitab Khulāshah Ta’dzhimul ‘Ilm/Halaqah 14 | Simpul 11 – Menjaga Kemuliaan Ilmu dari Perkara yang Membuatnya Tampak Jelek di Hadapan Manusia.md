@@ -1,4 +1,5 @@
-**Halaqah 14 | Simpul 11 – Menjaga Kemuliaan Ilmu dari Perkara yang Membuatnya Tampak Jelek di Hadapan Manusia**
+# Halaqah 14 | Simpul 11 – Menjaga Kemuliaan Ilmu dari Perkara yang Membuatnya Tampak Jelek di Hadapan Manusia
+---
 
 **Kitab:** Khulāshah Ta’dzhimul ‘Ilm  
 **Pemateri:** Ustadz Dr. Abdullah Roy, M.A.
