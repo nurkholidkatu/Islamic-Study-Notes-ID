@@ -1,4 +1,4 @@
-# *Halaqah 17 | Simpul 13 – Berupaya Keras untuk Menghafal Ilmu, Bermudzakarah, dan Bertanya kepada Guru (2)*
+# Halaqah 17 | Simpul 13 – Berupaya Keras untuk Menghafal Ilmu, Bermudzakarah, dan Bertanya kepada Guru (2)
 **Kitab:** Khulāshah Ta’dzhimul ‘Ilm  
 **Pemateri:** Ustadz Dr. Abdullah Roy, M.A.  
 
