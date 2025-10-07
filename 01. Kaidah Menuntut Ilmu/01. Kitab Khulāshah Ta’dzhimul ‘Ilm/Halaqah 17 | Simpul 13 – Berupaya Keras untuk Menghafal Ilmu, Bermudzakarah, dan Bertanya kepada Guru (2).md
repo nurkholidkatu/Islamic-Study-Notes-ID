@@ -6,6 +6,7 @@
 <span dir="rtl" style="text-align:right; font-family:'Scheherazade',serif;">الحمد لله والصلاة والسلام على رسول الله وعلى آله وصحبه ومن والاه</span>  
 
 <span style="text-align:justify;">Ini adalah Halaqah yang ke-17 dari Silsilah ‘Ilmiyyah Pembahasan Kitāb Khulāshah Ta’dzhimul ‘Ilm, karya Fadhilatu Syaikh Shālih Ibn Abdillāh Ibn Hamad Al-Ushaimi *hafidzahullāhu ta’ala*.</span>  
+
 ---
 
 > <span dir="rtl" style="text-align:right; font-family:'Scheherazade',serif;">وبالمذاكرة تدوم حياة العلم في النَّفس، ويقوىٰ تعلُّقه بها</span>  
