@@ -1,4 +1,4 @@
-**Halaqah 18 | Simpul 14 – Menghormati dan Menghargai Ahli Ilmu**  
+# Halaqah 18 | Simpul 14 – Menghormati dan Menghargai Ahli Ilmu
 **Kitab:** Khulāshah Ta’dzhimul ‘Ilm  
 **Pemateri:** Ustadz Dr. Abdullah Roy, M.A.  
 
