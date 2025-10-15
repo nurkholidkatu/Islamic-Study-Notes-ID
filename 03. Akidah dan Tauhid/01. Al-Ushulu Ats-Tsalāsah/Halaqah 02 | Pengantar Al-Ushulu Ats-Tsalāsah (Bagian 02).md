@@ -67,9 +67,6 @@ Maknanya, **Allah adalah Al-Ma’lūh (المعبود)**, yaitu Zat yang disemba
 
 “Dan Dia adalah Allah yang disembah, baik di langit maupun di bumi.”  
 
-- Di langit, Dia disembah oleh para malaikat.  
-- Di bumi, oleh orang-orang yang beriman.
-
 ---
 
 ## Makna Ar-Rahmān dan Ar-Rahīm
