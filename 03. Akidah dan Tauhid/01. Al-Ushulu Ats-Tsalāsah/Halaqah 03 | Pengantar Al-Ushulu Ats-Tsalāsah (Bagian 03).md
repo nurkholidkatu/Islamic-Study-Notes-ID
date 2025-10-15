@@ -1,6 +1,6 @@
 # Halaqah 03 | Pengantar Al-Ushulu Ats-Tsalāsah (Bagian 03)
 
-🎙 Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى  
+🎙 Ustadz Dr. Abdullah Roy, M.A حفظه الله تعالى  
 📗 Silsilah Al-Ushulu Ats-Tsalasah  
 
 <div align="right">
@@ -13,35 +13,14 @@
 
 ---
 
-Halaqah yang ketiga dari Silsilah ‘Ilmiyyah Penjelasan Kitāb *Al Ushūlu Ats-Tsalātsah wa Adillatuhā* (3 Landasan utama dan dalīl-dalīlnya) yang dikarang oleh Syaikh Muhammad bin Abdul Wahāb bin Sulaimān At Tamimi rahimahullāh.  
+
+<div align="justify">
+
+Halaqah yang ketiga dari Silsilah ‘Ilmiyyah Penjelasan *Kitāb Al Ushūlu Ats-Tsalātsah wa Adillatuhā* (Tiga Landasan Utama dan Dalīl-dalīlnya) yang dikarang oleh Syaikh Muhammad bin Abdul Wahhāb bin Sulaimān At-Tamimi rahimahullāh.  
 
 Beliau mengatakan:  
 
-<div align="right">
-
-اعلم رحمك الله أنه يجب علينا تعلم أربع مسائل:  
-
 </div>
-
-Ketahuilah! Semoga Allāh merahmatimu. Sesungguhnya wajib atas kita semua untuk mempelajari empat perkara.  
-
-Orang Arab apabila mengatakan *اعلم* (ketahuilah) menunjukkan bahwasanya apa yang akan disampaikan setelahnya adalah perkara yang sangat penting, sehingga mengatakan *اعلم* (ketahuilah) wahai saudaraku (saudariku) menunjukkan bahwasanya apa yang akan beliau sampaikan adalah memang pantas diperhatikan dan hendaknya seseorang yang mendengarnya menyiapkan pendengarannya untuk bisa menyimak apa yang akan disampaikan.  
-
-Kemudian beliau mengatakan:  
-
-<div align="right">
-
-رحمك الله  
-
-</div>
-
-“Semoga Allāh merahmatimu.”  
-
-Mendo’akan bagi setiap pembaca, pendengar yang mendengar atau membaca kitāb beliau, di do’akan dengan rahmat dan kasih sayang Allāh Subhānahu wa Ta’āla.  
-
-Dan ini termasuk adab seorang mualim yang ingin mengajarkan kepada muridnya (kepada orang lain) supaya mendo’akan kebaikan bagi orang yang ingin diajarkan.  
-
-Dido’akan dengan rahmat, maghfirah, dan juga kebaikan-kebaikan yang lain, yang demikian itu akan menambah keikhlāsan seseorang dan akan menambah kasih sayang diantara keduanya, baik yang mengajarkan maupun yang diajarkan.  
 
 <div align="right">
 
@@ -49,9 +28,45 @@ Dido’akan dengan rahmat, maghfirah, dan juga kebaikan-kebaikan yang lain, yang
 
 </div>
 
+<div align="justify">
+
+Ketahuilah! Semoga Allāh merahmatimu. Sesungguhnya wajib atas kita semua untuk mempelajari empat perkara.  
+
+Orang Arab apabila mengatakan *اعلم* (ketahuilah), menunjukkan bahwa apa yang akan disampaikan setelahnya adalah perkara yang sangat penting. Maka ketika beliau mengatakan *اعلم* (ketahuilah) wahai saudaraku (atau saudariku), hal itu menunjukkan bahwa apa yang akan disampaikan pantas diperhatikan, dan hendaknya seseorang menyiapkan pendengarannya untuk menyimak dengan baik.  
+
+Kemudian beliau mengatakan:  
+
+</div>
+
+<div align="right">
+
+رحمك الله  
+
+</div>
+
+<div align="justify">
+
+“Semoga Allāh merahmatimu.”  
+
+Beliau mendoakan bagi setiap pembaca atau pendengar kitab ini dengan rahmat dan kasih sayang dari Allāh Subhānahu wa Ta’āla.  
+
+Ini termasuk adab seorang mu’allim (pengajar) terhadap muridnya, yaitu mendoakan kebaikan bagi mereka yang diajarkan. Dengan doa kebaikan, rahmat, dan maghfirah, maka akan tumbuh keikhlasan serta kasih sayang di antara keduanya — baik antara yang mengajarkan maupun yang diajarkan.  
+
+</div>
+
+<div align="right">
+
+اعلم رحمك الله أنه يجب علينا تعلم أربع مسائل  
+
+</div>
+
+<div align="justify">
+
 “Wajib bagi kita semua untuk mempelajari empat perkara.”  
 
-Yang dimaksud dengan wajib artinya masing-masing dari kita tidak ada udzur untuk meninggalkannya, apabila seseorang melakukannya dia mendapatkan pahala dan apabila meninggalkannya maka dia berdosa.  
+Yang dimaksud dengan *wajib* adalah bahwa masing-masing dari kita tidak memiliki alasan untuk meninggalkannya. Barang siapa melakukannya akan mendapatkan pahala, dan barang siapa meninggalkannya akan mendapatkan dosa.  
+
+</div>
 
 <div align="right">
 
@@ -59,19 +74,19 @@ Yang dimaksud dengan wajib artinya masing-masing dari kita tidak ada udzur untuk
 
 </div>
 
+<div align="justify">
+
 “Wajib bagimu mempelajari empat perkara ini.”  
 
-Ilmu tidak semuanya wajib, disana ada ilmu yang *fardhu ‘ain*, wajib bagi setiap muslim dan muslimah untuk mempelajarinya (seperti) ilmu tentang iman, mengilmui tentang thararah, mengilmui tentang shalāt lima waktu, ilmu ini wajib ‘ain (harus) dan wajib setiap muslim dan muslimah untuk mempelajari perkara ini.  
+Tidak semua ilmu bersifat wajib. Ada ilmu yang *fardhu ‘ain*, yaitu wajib bagi setiap muslim dan muslimah untuk mempelajarinya, seperti ilmu tentang iman, thahārah, dan shalāt lima waktu. Ilmu-ilmu ini wajib ‘ain karena setiap muslim diwajibkan melaksanakan shalāt, dan seseorang tidak mungkin melakukannya dengan benar tanpa mengetahui tata caranya.  
 
-Karena shalāt 5 waktu adalah kewajiban semuanya, tidak mungkin seseorang bisa menjalankan shalāt 5 waktu kecuali apabila dia mengilmui bagaimana melakukan shalāt 5 waktu tersebut.  
+Ada pula ilmu yang *fardhu kifāyah*, yaitu apabila sebagian kaum muslimin telah mempelajarinya, maka gugurlah kewajiban bagi yang lain. Misalnya, ilmu faraidh (pembagian warisan). Bila sudah ada sebagian yang mendalaminya, maka tidak semua orang harus mempelajarinya.  
 
-Dan disana ada ilmu yang *fardhu kifayah*, apabila sudah ada sebagian kaum muslimin yang mempelajari maka tidak wajib bagi yang lain untuk mempelajari ilmu tersebut (misalnya) tentang ilmu faraidh (tentang pembagian waris) apabila sudah ada sebagian yang mempelajari (mendalami) maka tidak diharuskan seluruh kaum muslimin untuk mempelajari ilmu ini.  
+Selain itu, ada ilmu yang hukumnya sunnah (dianjurkan). Apabila seseorang mempelajarinya, maka hal itu baik dan berpahala. Namun bila tidak, dia tidak berdosa.  
 
-Dan disana ada perkara atau ilmu yang sunnah (yang dianjurkan) yang apabila diketahui maka ini baik (afdhal) namun apabila tidak dipelajari (tidak diketahui) maka seseorang tidak berdosa karena tidak mempelajari ilmu tersebut.  
+Dalam hal ini, beliau mengatakan bahwa wajib bagi kita untuk mempelajari empat perkara berikut:  
 
-Dan disini beliau mengatakan:  
-
-Wajib bagi kita untuk mempelajari empat perkara:  
+</div>
 
 <div align="right">
 
@@ -79,9 +94,13 @@ Wajib bagi kita untuk mempelajari empat perkara:
 
 </div>
 
-⑴ Wajib bagi kita untuk mengetahui ilmu.  
+<div align="justify">
+
+⑴ Wajib bagi kita untuk mengetahui *ilmu*.  
 
 Apa yang dimaksud dengan ilmu itu?  
+
+</div>
 
 <div align="right">
 
@@ -89,7 +108,11 @@ Apa yang dimaksud dengan ilmu itu?
 
 </div>
 
-Ilmu adalah mengilmui ma’rifatullāh (mengenal Allah), ma’rifatun nabi (mengenal nabinya), dan mengenal agama Islām dengan dalīl-dalīlnya.  
+<div align="justify">
+
+Ilmu adalah mengenal Allāh, mengenal Nabi-Nya, dan mengenal agama Islām dengan dalīl-dalīlnya.  
+
+</div>
 
 <div align="right">
 
@@ -97,15 +120,17 @@ Ilmu adalah mengilmui ma’rifatullāh (mengenal Allah), ma’rifatun nabi (meng
 
 </div>
 
-⑵ Mengamalkan ilmu yang sudah dipelajari.  
+<div align="justify">
 
-Kalau kita nanti sudah mengenal Allāh, sudah mempelajari siapa Allāh, bagaimana haknya, kita mengenal nabi Muhammad shallallāhu ‘alayhi wa sallam dan apa haknya dan mengenal apa agama Islām, apa pondasinya.  
+⑵ Mengamalkan ilmu yang telah dipelajari.  
 
-Apa yang dimaksud dengan rukun Islām, apa yang dimaksud dengan rukun Iman, maka kewajiban yang kedua adalah mengamalkan.  
+Apabila kita telah mengenal Allāh, mengetahui siapa Allāh dan hak-hak-Nya, mengenal Nabi Muhammad shallallāhu ‘alayhi wa sallam beserta hak-haknya, dan mengenal agama Islām beserta rukun dan dasarnya, maka kewajiban berikutnya adalah mengamalkan ilmu tersebut.  
 
-⇒ Karena maksud dari belajar adalah mengamalkan.  
+⇒ Karena tujuan dari belajar adalah untuk diamalkan.  
 
-Ilmu dipelajari bukan sekedar dipelajari akan tetapi tujuan utamanya adalah diamalkan, ilmu yang tidak diamalkan sebagaimana ucapan para ulamā seperti pohon yang tidak berbuah.  
+Ilmu yang tidak diamalkan seperti pohon yang tidak berbuah, sebagaimana dikatakan oleh para ulama.  
+
+</div>
 
 <div align="right">
 
@@ -113,13 +138,17 @@ Ilmu dipelajari bukan sekedar dipelajari akan tetapi tujuan utamanya adalah diam
 
 </div>
 
+<div align="justify">
+
 ⑶ Berdakwah kepada ilmu dan amal ini.  
 
-Apabila kita seorang muslim sudah mengetahui, kemudian sudah mengamalkan dalam kehidupan kita sehari-hari dan kita merasakan manfaatnya mengenal Allāh, mengenal Nabi shallallāhu ‘alayhi wa sallam, mengenal agama Islām maka hendaknya kita berusaha untuk menyampaikan kebaikan kepada orang lain, yang mungkin banyak diantara mereka yang belum mempelajari tentang mengenal Allāh, mengenal Nabi dan juga mengenal agama Islām.  
+Apabila seseorang telah mengetahui, kemudian mengamalkan ilmunya dalam kehidupan sehari-hari, dan merasakan manfaat mengenal Allāh, mengenal Nabi shallallāhu ‘alayhi wa sallam, serta mengenal agama Islām, maka hendaknya ia berusaha menyampaikan kebaikan ini kepada orang lain.  
 
-Maka hendaklah kita berusaha untuk menyampaikan kebaikan ini kepada orang lain yang mungkin banyak diantara mereka yang belum mempelajari tentang mengenal Allāh, mengenal Nabi dan juga mengenal agama Islām apalagi mengamalkan, dan ini sebagai tanda cinta kita sebagai seorang saudara.  
+Banyak di antara manusia yang belum mengenal Allāh, belum mengenal Nabi, dan belum mengenal agama Islām dengan benar, apalagi mengamalkannya. Oleh karena itu, kita wajib berusaha menyampaikan kebaikan ini kepada mereka, sebagai tanda cinta kita kepada sesama saudara seiman.  
 
 Sebagaimana sabda Nabi shallallāhu ‘alayhi wa sallam:  
+
+</div>
 
 <div align="right">
 
@@ -127,11 +156,15 @@ Sebagaimana sabda Nabi shallallāhu ‘alayhi wa sallam:
 
 </div>
 
-“Tidak beriman salah seorang diantara kalian sampai dia mencintai untuk saudaranya apa yang dia cintai untuk dirinya sendiri.”  
+<div align="justify">
 
-Sebagaimana kita senang dan bahagia mengenal Allāh, mengenal Nabi, mengenal agama Islām dan dengannya kita selamat di dunia dan juga di akhirat maka kita berusaha untuk menjadikan saudara kita juga berbahagia, mencintai untuk saudara kita apa yang kita cintai untuk diri kita sendiri.  
+“Tidak beriman salah seorang di antara kalian sampai ia mencintai untuk saudaranya apa yang ia cintai untuk dirinya sendiri.”  
+
+Sebagaimana kita senang dan bahagia ketika mengenal Allāh, mengenal Nabi, dan mengenal agama Islām — yang dengannya kita selamat di dunia dan akhirat — maka kita juga mencintai agar saudara kita mendapatkan kebahagiaan yang sama.  
 
 Itulah yang bisa kita sampaikan.  
+
+</div>
 
 <div align="right">
 
