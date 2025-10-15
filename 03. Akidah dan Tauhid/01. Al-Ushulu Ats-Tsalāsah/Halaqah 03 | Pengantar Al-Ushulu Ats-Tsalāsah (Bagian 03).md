@@ -10,7 +10,7 @@
 الحمد لله والصلاة والسلام على رسول الله وعلى آله وصحبه ومن والاه  
 
 </div>
-
+---
 Halaqah yang ketiga dari Silsilah ‘Ilmiyyah Penjelasan Kitāb *Al Ushūlu Ats-Tsalātsah wa Adillatuhā* (3 Landasan utama dan dalīl-dalīlnya) yang dikarang oleh Syaikh Muhammad bin Abdul Wahāb bin Sulaimān At Tamimi rahimahullāh.  
 
 Beliau mengatakan:  
