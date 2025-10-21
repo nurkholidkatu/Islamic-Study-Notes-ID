@@ -29,14 +29,26 @@ Ini adalah Halaqah yang ke-6 dari Silsilah ‘Ilmiyyah Penjelasan Kitāb <strong
 
 ### Penjelasan
 
-<p align="justify">
-• Ucapan <strong>اعلم</strong> ("ketahuilah") menunjukkan bahwa apa yang akan disampaikan merupakan hal penting yang harus didengar, diperhatikan, dan diketahui setiap muslim.  
-• <strong>رحمك الله</strong> – Beliau mendoakan kebaikan berupa rahmat (kasih sayang) Allah bagi setiap pembaca dan pendengar, yang mencakup kasih sayang dalam urusan dunia dan agama. Meraih rahmat Allah adalah kebahagiaan luar biasa bagi seorang muslim.  
-• <strong>يجب</strong> ("wajib") artinya jika dikerjakan, seseorang mendapat pahala, dan jika ditinggalkan, ia berdosa.  
-• Yang dimaksud <strong>muslim dan muslimah</strong> di sini adalah orang yang sudah <strong>mukallaf</strong> (terbebani syariat).  
-• <strong>تعلم هذه الثلاث مسائل</strong> – Wajib bagi mereka <strong>mempelajari tiga perkara</strong> yang akan disebutkan. Sebelumnya telah dijelaskan kewajiban berilmu, beramal, berdakwah, dan bersabar. Kini, penulis menyampaikan bahwa di antara ilmu yang wajib dipelajari adalah tiga landasan ini.  
-• <strong>والعمل بهن</strong> – Dan juga <strong>mengamalkan</strong> tiga perkara tersebut.
-</p>
+<ol align="justify">
+<li>
+Ucapan <strong>اعلم</strong> ("ketahuilah") menunjukkan bahwa apa yang akan disampaikan merupakan hal penting yang harus didengar, diperhatikan, dan diketahui setiap muslim.
+</li>
+<li>
+<strong>رحمك الله</strong> – Beliau mendoakan kebaikan berupa rahmat (kasih sayang) Allah bagi setiap pembaca dan pendengar, yang mencakup kasih sayang dalam urusan dunia dan agama. Meraih rahmat Allah adalah kebahagiaan luar biasa bagi seorang muslim.
+</li>
+<li>
+<strong>يجب</strong> ("wajib") artinya jika dikerjakan, seseorang mendapat pahala, dan jika ditinggalkan, ia berdosa.
+</li>
+<li>
+Yang dimaksud <strong>muslim dan muslimah</strong> di sini adalah orang yang sudah <strong>mukallaf</strong> (terbebani syariat).
+</li>
+<li>
+<strong>تعلم هذه الثلاث مسائل</strong> – Wajib bagi mereka <strong>mempelajari tiga perkara</strong> yang akan disebutkan. Sebelumnya telah dijelaskan kewajiban berilmu, beramal, berdakwah, dan bersabar. Kini, penulis menyampaikan bahwa di antara ilmu yang wajib dipelajari adalah tiga landasan ini.
+</li>
+<li>
+<strong>والعمل بهن</strong> – Dan juga <strong>mengamalkan</strong> tiga perkara tersebut.
+</li>
+</ol>
 
 ---
 
