@@ -1,6 +1,6 @@
 # **Halaqah 01 | Pengantar Ushūlu As-Sittah**
 👤 Ustadz Dr. Abdullah Roy, M.A. حفظه الله تعالى  
-📗 Kitab Ushūlus Sittah  
+📗 Kitab Al-Ushūlul As-Sittah
 •┈┈┈┈┈•❁﷽❁•┈┈┈┈┈•
 
 ============================
