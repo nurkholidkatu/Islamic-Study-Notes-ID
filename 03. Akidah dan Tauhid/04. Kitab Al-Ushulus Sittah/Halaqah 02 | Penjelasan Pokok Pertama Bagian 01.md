@@ -24,7 +24,11 @@ Halaqah yang kedua dari Silsilah ‘Ilmiyyah Penjelasan Kitāb Al-Ushūlul As-Si
 </p>
 
 <p style="text-align: justify;">
-Perkara-perkara atau pokok-pokok yang dijelaskan oleh Allāh Subhānahu wa Ta’āla dengan penjelasan yang sangat jelas bagi orang-orang awam, di atas apa yang disangka oleh orang-orang yang menyangka.”
+Perkara-perkara atau pokok-pokok yang di jelaskan oleh Allāh Subhānahu wa Ta’āla dengan penjelasan yang sangat jelas bagi orang-orang awam di atas apa yang disangka oleh orang-orang yang menyangka”
+</p>
+
+<p style="text-align: justify;">
+Beliau (rahimahullāh) mengatakan:
 </p>
 
 <p style="text-align: right; font-family: 'Amiri', 'Scheherazade', serif; font-size: 20px;">
@@ -40,36 +44,47 @@ Perkara-perkara atau pokok-pokok yang dijelaskan oleh Allāh Subhānahu wa Ta’
 </p>
 
 <p style="text-align: justify;">
-“Kemudian setelah itu salahlah kebanyakan dari orang-orang yang cerdas di antara manusia ini.  
-Dan orang-orang yang berakal dari anak-anak Ādam, kecuali sedikit saja di antara mereka.”
+“Kemudian setelah itu salahlah kebanyakan dari orang-orang yang cerdas diantara manusia ini”
 </p>
 
 <p style="text-align: justify;">
-Maksud dari ucapan beliau rahimahullāh pada muqaddimah kitab ini adalah:
+“Dan orang-orang yang berakal dari anak-anak Ādam”
 </p>
 
 <p style="text-align: justify;">
-“Bahwasanya ada enam perkara yang telah Allāh jelaskan di dalam Al-Qurān dengan penjelasan yang sangat jelas (saking jelasnya) sehingga dapat dipahami oleh orang-orang awam. Namun banyak di antara orang-orang cerdas salah dalam memahami perkara ini.”
+“Kecuali sedikit saja diantara mereka”
 </p>
 
 <p style="text-align: justify;">
-⇒ Dipahami oleh sebagian orang awam, namun sebagian orang cerdas bahkan ulama menurut manusia—ternyata salah dalam memahaminya.
+Maksud dari ucapan beliau rahimahullāh didalam muqaddimah kitāb beliau ini, adalah,
 </p>
 
 <p style="text-align: justify;">
-Sebelum menyebutkan enam perkara ini, beliau ingin mengingatkan bahwa perkara-perkara tersebut sangat jelas dipahami oleh orang awam, namun banyak orang cerdas salah dalam memahaminya.
+“Bahwasanya disana ada perkara-perkara (enam perkara) yang telah Allāh jelaskan didalam Al Qurānul Karīm dengan penjelasan yang sangat jelas (saking jelasnya) perkara-perkara ini dipahami oleh orang-orang yang awam atau kasarannya orang yang bodoh orang yang Jāhil. Tetapi banyak diantara orang-orang cerdas salah didalam memahami perkara ini.”
 </p>
 
 <p style="text-align: justify;">
-Hal ini menunjukkan:
-</p>
-
-<p style="text-align: justify; font-weight: bold;">
-“Hidayah dan taufiq berada di tangan Allāh, tidak berkaitan dengan kecerdasan seseorang.”
+⇒ Dipahami oleh sebagian orang (bahkan orang yang awam) akan tetapi disana ada orang cerdas (bahkan di anggap pintar dan ulamā oleh sebagian manusia) dia salah didalam memahami enam perkara ini.
 </p>
 
 <p style="text-align: justify;">
-Terkadang Allāh menunjukkan kebenaran kepada seseorang yang dianggap awam, namun mengharamkan kebenaran itu dari sebagian orang yang sangat cerdas.
+(Ini adalah maksud dari ucapan beliau rahimahullāh didalam muqaddimah kitāb ini)
+</p>
+
+<p style="text-align: justify;">
+Sebelum beliau menyebutkan enam perkara ini, beliau ingin menyampaikan kepada kita, (mengingatkan kepada kita) bahwasanya perkara-perkara yang akan beliau sebutkan dipahami oleh orang awam akan tetapi banyak orang yang cerdas dan mengaku dia adalah pengemban ilmu agama ternyata dia salah didalam memahami perkara tersebut.
+</p>
+
+<p style="text-align: justify;">
+Dan ini menunjukkan bahwasanya,
+</p>
+
+<p style="text-align: justify;">
+“Hidayah dan taufīq adalah ditangan Allāh Subhānahu wa Ta’āla, tidak berkaitan dengan kecerdasan seseorang”
+</p>
+
+<p style="text-align: justify;">
+Terkadang Allāh Subhānahu wa Ta’āla menunjukkan al haq (kebenaran) kepada seorang (yang mungkin) diantara manusia sebagai orang yang awam. Namun Allāh mengharamkan kebenaran ini dari sebagian orang yang dianggap sebagai orang yang cerdas.
 </p>
 
 <p style="text-align: right; font-family: 'Amiri', 'Scheherazade', serif; font-size: 20px;">
@@ -77,21 +92,47 @@ Terkadang Allāh menunjukkan kebenaran kepada seseorang yang dianggap awam, namu
 </p>
 
 <p style="text-align: justify;">
-“Allāh menyesatkan siapa yang Dia kehendaki, dan memberi hidayah kepada siapa yang Dia kehendaki.”  
-(QS. An-Nahl: 93, QS. Fāthir: 8)
+“Allāh Subhānahu wa Ta’āla menyesatkan siapa yang dikehendaki, dan memberikan hidayah kepada siapa yang dikehendaki”
 </p>
 
 <p style="text-align: justify;">
-✔ Allāh menyesatkan siapa yang Dia kehendaki, meskipun ia cerdas dan genius.  
-✔ Allāh memberi hidayah kepada siapa yang Dia kehendaki, meskipun ia dianggap awam oleh manusia.
+(QS. An Nahl: 93/QS. Fāthir: 8)
 </p>
 
 <p style="text-align: justify;">
-Dengan ini, kita harus merendahkan diri di hadapan Allāh, tidak bersandar pada kecerdasan atau ilmu, tetapi senantiasa meminta hidayah kepada-Nya.
+√ Allāh Subhānahu wa Ta’āla menyesatkan siapa yang dikehendaki.
 </p>
 
 <p style="text-align: justify;">
-Itulah yang bisa disampaikan. Semoga bermanfaat dan sampai bertemu kembali pada halaqah selanjutnya.
+Meskipun dia orang yang cerdas, orang yang pintar, orang yang genius, dan memberikan hidayah kepada siapa yang dikehendaki.
+</p>
+
+<p style="text-align: justify;">
+√ Allāh Subhānahu wa Ta’āla memberikan hidayah kepada siapa yang dikehendaki.
+</p>
+
+<p style="text-align: justify;">
+Meskipun dia orang yang awam (dianggap terbelakang) oleh sebagian orang, tetapi kalau Allāh Subhānahu wa Ta’āla berkehendak untuk memberikan hidayah kepadanya niscaya dia termasuk orang yang mendapatkan petunjuk.
+</p>
+
+<p style="text-align: justify;">
+Dan ini menjadikan kita untuk senantiasa merendahkan diri kita dihadapan Allāh Subhānahu wa Ta’āla, meminta hidayah kepada-Nya.
+</p>
+
+<p style="text-align: justify;">
+√ Kita jangan bertawakal dengan ilmu yang kita miliki.
+</p>
+
+<p style="text-align: justify;">
+√ Kita jangan bertawakal dengan kecerdasan yang kita miliki.
+</p>
+
+<p style="text-align: justify;">
+Kita harus meminta petunjuk kepada Allāh Subhānahu wa Ta’āla, supaya Allāh menunjukkan kepada kita kebenaran dan menjauhkan kita dari syubhat dan juga kebathilan.
+</p>
+
+<p style="text-align: justify;">
+Itulah yang bisa kita sampaikan, semoga yang sedikit ini bermanfaat dan sampai bertemu kembali pada halaqah selanjutnya
 </p>
 
 <p style="text-align: right; font-family: 'Amiri', 'Scheherazade', serif; font-size: 20px;">
