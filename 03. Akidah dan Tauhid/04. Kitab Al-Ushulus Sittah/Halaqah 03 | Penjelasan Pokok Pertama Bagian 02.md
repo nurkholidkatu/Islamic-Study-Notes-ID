@@ -63,6 +63,7 @@ Terdapat tauhid Asmā’ wa Shifāt, tauhid rubūbiyyah, dan tauhid ulūhiyyah. 
 ---
 
 <div style="text-align: justify;">
+  
 **2. Surat An-Nās**
 
 </div>
