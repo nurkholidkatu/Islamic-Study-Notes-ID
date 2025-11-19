@@ -85,10 +85,10 @@ Bahkan kisah para nabi pun semuanya berkisar pada dakwah tauhid: Nabi Nūh, Hūd
 
 <div style="text-align: justify;">
 
-### 1 — **Al-I‘rādh (berpaling dari agama)**  
+### 1. **Al-I‘rādh (berpaling dari agama)**  
 Tidak mau mempelajari agama, sibuk dengan dunia, pekerjaan, atau hobi, sehingga tidak mengenali tauhid.
 
-### 2 — **Al-Kibr (kesombongan)**  
+### 2. **Al-Kibr (kesombongan)**  
 Mengetahui kebenaran namun tidak mau menerimanya, seperti Iblis ketika diperintahkan sujud penghormatan kepada Nabi Ādam.
 
 </div>
