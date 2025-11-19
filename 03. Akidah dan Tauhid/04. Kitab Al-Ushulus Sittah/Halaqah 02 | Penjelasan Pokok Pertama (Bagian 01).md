@@ -1,4 +1,4 @@
-# Halaqah 02 | Penjelasan Pokok Pertama Bagian 01
+# Halaqah 02 | Penjelasan Pokok Pertama (Bagian 01)
 👤 Ustadz Dr. Abdullah Roy, M.A  
 📗 Kitab Al-Ushūlul As-Sittah  
 •┈┈┈┈┈•❁﷽❁•┈┈┈┈┈•
