@@ -1,4 +1,4 @@
-# Halaqah 04 — Penjelasan Pokok Pertama (Bagian 03)  
+# Halaqah 04 | Penjelasan Pokok Pertama (Bagian 03)  
 👤 *Ustadz Dr. Abdullah Roy, M.A*  
 📗 *Kitab Al-Ushūlul As-Sittah*
 
