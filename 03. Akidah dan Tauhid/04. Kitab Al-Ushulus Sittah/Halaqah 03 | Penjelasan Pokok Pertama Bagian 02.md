@@ -10,9 +10,8 @@
 الحمد لله والصلاة والسلام على رسول الله وعلى آله وصحبه ومن والاه
 </div>
 
-
 <div style="text-align: justify;">
-Halaqah yang ketiga dari Silsilah ‘Ilmiyyah *Penjelasan Kitāb Al-Ushūlul As-Sittah* (6 Kaidah), karya Syaikh Muhammad bin Abdul Wahab bin Sulaimān At-Tamimi rahimahullāh.
+Halaqah yang ketiga dari Silsilah ‘Ilmiyyah Penjelasan Kitāb Al-Ushūlul As-Sittah (6 Kaidah), karya Syaikh Muhammad bin Abdul Wahab bin Sulaimān At-Tamimi rahimahullāh.
 
 Pada halaqah ini, beliau rahimahullāh mulai menyebutkan pokok pertama, yaitu perkara yang sebenarnya dipahami oleh orang-orang awam kaum muslimin, namun banyak orang-orang cerdas justru keliru dalam memahaminya.
 </div>
