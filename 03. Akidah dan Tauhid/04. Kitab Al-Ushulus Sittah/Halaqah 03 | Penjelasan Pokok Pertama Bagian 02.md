@@ -104,7 +104,7 @@ Mengetahui kebenaran namun tidak mau menerimanya, seperti Iblis ketika diperinta
 <div style="text-align: justify;">
 “Kitab (Al-Qur’ān) yang Kami turunkan kepadamu penuh berkah, agar mereka mentadabburi ayat-ayatnya dan agar orang-orang yang memiliki akal mengambil pelajaran.” (QS. Sād: 29)
 
-Al-Qur’an diturunkan untuk ditadabburi, dipahami, dan diamalkan — bukan hanya dibaca atau diperindah tajwidnya.
+Al-Qur’an diturunkan untuk ditadabburi, dipahami, dan diamalkan bukan hanya sekedar dibaca atau diperindah tajwidnya.
 </div>
 
 ---
