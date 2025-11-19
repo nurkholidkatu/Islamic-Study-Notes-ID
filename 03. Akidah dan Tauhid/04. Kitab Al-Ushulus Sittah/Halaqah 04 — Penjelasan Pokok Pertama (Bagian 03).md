@@ -114,4 +114,30 @@ Apabila hanya Allah yang disebut, kesal hatilah orang-orang yang tidak beriman k
 
 <p style="text-align: right; font-family: 'Amiri', serif; font-size: 20px;">
 قَالَ فَبِمَا أَغْوَيْتَنِي لَأَقْعُدَنَّ لَهُمْ صِرَاطَكَ الْمُسْتَقِيمَ ۞  
-ثُمَّ
+ثُمَّ لَآتِيَنَّهُمْ مِنْ بَيْنِ أَيْدِيهِمْ وَمِنْ خَلْفِهِمْ وَعَنْ أَيْمَانِهِمْ وَعَنْ شَمَائِلِهِمْ ۖ وَلَا تَجِدُ أَكْثَرَهُمْ شَاكِرِينَ  
+</p>
+
+<p style="text-align: justify;">
+Iblis berkata: Karena Engkau telah menyesatkanku, aku akan menghadang mereka di jalan-Mu yang lurus.  
+Lalu aku akan mendatangi mereka dari depan, belakang, kanan, dan kiri mereka. Dan Engkau tidak akan menemukan kebanyakan mereka sebagai hamba-hamba yang bersyukur.  
+(QS. Al-A'raf: 16–17)
+</p>
+
+<p style="text-align: justify;">
+Inilah talbis syaitan: menghias yang batil menjadi tampak benar, dan yang benar tampak batil.  
+Termasuk tipuannya adalah membuat manusia mengira bahwa orang yang bertauhid berarti meremehkan kedudukan orang-orang shalih.
+</p>
+
+---
+
+## Penutup
+
+<p style="text-align: justify;">
+Demikian pembahasan halaqah ini. Semoga Allah memberikan taufik dan hidayah-Nya, serta meneguhkan kita di atas tauhid.
+</p>
+
+<p style="text-align: right; font-family: 'Amiri', serif; font-size: 20px;">
+وَبِاللّٰهِ التَّوْفِيقُ وَالْهِدَايَةُ  
+<br>
+وَالسَّلَامُ عَلَيْكُمْ وَرَحْمَةُ اللّٰهِ وَبَرَكَاتُهُ
+</p>
