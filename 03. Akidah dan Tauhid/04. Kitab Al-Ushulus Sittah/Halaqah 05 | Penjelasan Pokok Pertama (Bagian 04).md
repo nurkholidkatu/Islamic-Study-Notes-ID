@@ -47,9 +47,11 @@ Siapakah orang-orang yang shālih?
 </p>
 
 <p align="justify">
-√ Orang shālih yang ikhlās kepada Allāh Subhānahu wa Ta’āla.  
-√ Orang yang sesuai amalannya dengan Al Qur’ān dan juga hadīts-hadīts Rasūlullāh shallallāhu ‘alayhi wa sallam.  
-√ Orang yang shālih dhahir maupun bathinnya.
+• Orang shālih yang ikhlās kepada Allāh Subhānahu wa Ta’āla.
+  
+• Orang yang sesuai amalannya dengan Al Qur’ān dan juga hadīts-hadīts Rasūlullāh shallallāhu ‘alayhi wa sallam.
+
+• Orang yang shālih dhahir maupun bathinnya.
 </p>
 
 <p align="justify">
@@ -186,8 +188,10 @@ Dan diantara bentuk ghuluw terhadap orang-orang shālih dizaman sekarang diantar
 </p>
 
 <p align="justify">
-• Orang shālih yang ikhlās kepada Allāh.  
-• Orang yang amalannya sesuai dengan Al-Qur’ān dan hadīts Rasūlullāh shallallāhu ‘alayhi wa sallam.  
+• Orang shālih yang ikhlās kepada Allāh.
+  
+• Orang yang amalannya sesuai dengan Al-Qur’ān dan hadīts Rasūlullāh shallallāhu ‘alayhi wa sallam.
+
 • Orang yang shālih lahir maupun batinnya.
 </p>
 
