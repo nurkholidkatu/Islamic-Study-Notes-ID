@@ -175,8 +175,9 @@ Maka didalam syahadat واشهد ان محمدا عبده ورسوله…
 </p>
 
 <p align="justify">
-√ Pertama kita bersaksi bahwasanya beliau adalah seorang hamba artinya tidak disembah  
-√ Kedua kita bersaksi bahwasanya beliau adalah seorang rasūl artinya harus dibenarkan dan diikuti syar’iatnya.
+• Pertama kita bersaksi bahwasanya beliau adalah seorang hamba artinya tidak disembah.
+  
+• Kedua kita bersaksi bahwasanya beliau adalah seorang rasūl artinya harus dibenarkan dan diikuti syar’iatnya.
 </p>
 
 <p align="justify">
