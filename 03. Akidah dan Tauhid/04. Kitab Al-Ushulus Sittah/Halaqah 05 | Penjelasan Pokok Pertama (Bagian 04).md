@@ -188,11 +188,11 @@ Dan diantara bentuk ghuluw terhadap orang-orang shālih dizaman sekarang diantar
 </p>
 
 <p align="justify">
-• Orang shālih yang ikhlās kepada Allāh.
+• Berdoa kepada orang shālih yang telah meninggal.
   
-• Orang yang amalannya sesuai dengan Al-Qur’ān dan hadīts Rasūlullāh shallallāhu ‘alayhi wa sallam.
+• Membangun dan menghias kuburan mereka.
 
-• Orang yang shālih lahir maupun batinnya.
+• Berdiam diri atau beritikaf di kuburan mereka.
 </p>
 
 <p align="justify">
