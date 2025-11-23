@@ -19,7 +19,7 @@ Halaqah yang ketujuh dari Silsilah ‘Ilmiyyah Penjelasan Kitāb Al-Ushūlul As-
 </p>
 
 <p align="justify">
-Dan Allāh menyebutkan bahwasanya Allāh memerintahkan orang-orang muslimin untuk bersatu didalam agama dan melarang mereka untuk berpecah belah didalamnya.
+Dan Allāh menyebutkan bahwasanya Allāh memerintahkan orang-orang muslimin untuk bersatu di dalam agama dan melarang mereka untuk berpecah belah di dalamnya.
 </p>
 
 <p dir="rtl" align="right">
@@ -27,11 +27,11 @@ Dan Allāh menyebutkan bahwasanya Allāh memerintahkan orang-orang muslimin untu
 </p>
 
 <p align="justify">
-Dan lebih jelasnya atau kejelasan ini menjadi lebih jelas dengan apa yang ada dan datang didalam sunnah Rasūlullāh shallallāhu ‘alayhi wa sallam, yang semakin menambah keheranan kita kepada orang-orang yang berpecah belah didalam agamanya.
+Dan kejelasan itu bertambah dengan apa yang datang dalam As-Sunnah Nabi shallallāhu ‘alayhi wa sallam, yang semakin menambah kekagetan kita terhadap orang-orang yang berpecah belah dalam agamanya.
 </p>
 
 <p align="justify">
-Didalam As sunnah didalam hadīts-hadīts yang shahīh Rasūlullāh shallallāhu ‘alayhi wa sallam menerangkan juga tentang perintah bersatu didalam agama dan larangan untuk berpecah belah didalam agama.
+Dalam As-Sunnah, melalui hadits-hadits shahih, Rasulullah shallallāhu ‘alayhi wa sallam juga menerangkan perintah bersatu dalam agama dan larangan berpecah belah.
 </p>
 
 <p dir="rtl" align="right">
@@ -39,7 +39,7 @@ Didalam As sunnah didalam hadīts-hadīts yang shahīh Rasūlullāh shallallāhu
 </p>
 
 <p align="justify">
-“Sesungguhnya telah Allāh meridhāi untuk kalian tiga perkara, Allāh meridhāi untuk kalian agar kalian menyembah Allāh semata dan tidak menyekutukan Allāh dengan apapun.
+“Sesungguhnya Allāh meridhāi untuk kalian tiga perkara: agar kalian menyembah Allāh semata dan tidak menyekutukan-Nya dengan apa pun; agar kalian berpegang teguh pada tali Allāh secara bersama dan tidak berpecah; dan agar kalian saling menasihati dengan orang yang Allāh jadikan bagi kalian sebagai pengurus urusan (kepemimpinan).”
 </p>
 
 <p dir="rtl" align="right">
@@ -47,11 +47,11 @@ Didalam As sunnah didalam hadīts-hadīts yang shahīh Rasūlullāh shallallāhu
 </p>
 
 <p align="justify">
-“Berpegang teguh dengan tali Allāh dengan Al Qurān dan supaya kalian jangan berpecah belah”
+“Berpegang teguh pada tali Allāh secara bersama dan janganlah kalian berpecah belah.”
 </p>
 
 <p align="justify">
-Allāh Subhānahu wa Ta’āla ridhā apabila kita saling bersatu diatas hak (diatas Al Qur’ān).
+Allāh Subhānahu wa Ta'āla ridha apabila kita saling bersatu di atas hak (di atas Al-Qur'ān).
 </p>
 
 <p dir="rtl" align="right">
@@ -59,35 +59,31 @@ Allāh Subhānahu wa Ta’āla ridhā apabila kita saling bersatu diatas hak (di
 </p>
 
 <p align="justify">
-“Janganlah kalian saling berhasad, janganlah kalian saling memutus, janganlah kalian saling membelakangi dan jadilah kalian sebagai hamba-hamba Allāh yang saling bersaudara.”
+“Janganlah kalian saling berhasad, janganlah kalian saling membenci, janganlah kalian saling memutus, dan jadilah kalian sebagai hamba-hamba Allāh yang bersaudara.”
 </p>
 
 <p align="justify">
-Jelas, dijelaskan oleh Allāh Subhānahu wa Ta’āla didalam perintah untuk menjadi hamba-hamba Allāh yang bersaudara tidak saling hasad tidak saling memutus.
+Jelas, Allāh memerintahkan agar kita menjadi hamba-hamba-Nya yang bersaudara: tidak saling hasad dan tidak saling memutus.
 </p>
 
 <p dir="rtl" align="right">
-المُسْلِمُ أَخُو الْمُسْلِم: لا يَظلِمُه، وَلا يَحْقِرُهُ، وَلا يَخْذُلُهُ
+المُسْلِمُ أَخُو الْمُسْلِمِ: لا يَظلِمُهُ، وَلا يَحْقِرُهُ، وَلا يَخْذُلُهُ
 </p>
 
 <p align="justify">
-“Seorang muslim adalah saudara muslim yang lain, tidak menzhāliminya, tidak menghinanya tidak meninggalkanya ketika dia butuh pertolongan.”
+“Seorang muslim adalah saudara bagi muslim lainnya: ia tidak menzhaliminya, tidak merendahkannya, dan tidak meninggalkannya (ketika ia membutuhkan pertolongan).”
 </p>
 
 <p align="justify">
-Ini adalah perintah-perintah dari nabi shallallāhu ‘alayhi wa sallam supaya kita saling bersatu dan tidak berpecah belah.
+Itulah perintah Rasulullah shallallāhu ‘alayhi wa sallam agar kita saling bersatu dan tidak berpecah belah.
 </p>
 
 <p align="justify">
-Oleh karena itu didalam Islām, Allāh Subhānahu wa Ta’āla melarang perkara-perkara yang kira-kira menjadikan permusuhan diantara kita.
+Oleh karena itu, dalam Islam Allāh melarang perkara-perkara yang berpotensi menimbulkan permusuhan di antara kita.
 </p>
 
 <p align="justify">
-Kita dilarang ghibah (membicarakan kejelekan orang) dilarang mengadu domba, bahkan dilarang minum minuman keras demikian pula perjudian, diantara hikmahnya adalah untuk ini.
-</p>
-
-<p align="justify">
-Karena dua perkara ini menjadi wasīlah (perantara) bagi syaithān untuk memecah belah diantara kaum muslimin dengan sebab khamr dan perjudian.
+Kita dilarang ghibah (membicarakan keburukan orang), dilarang mengadu domba, serta dilarang minum minuman keras dan berjudi — di antara hikmah larangan itu adalah karena kedua perkara terakhir menjadi sarana bagi syaithān untuk memecah belah kaum muslimin.
 </p>
 
 <p dir="rtl" align="right">
@@ -95,35 +91,24 @@ Karena dua perkara ini menjadi wasīlah (perantara) bagi syaithān untuk memecah
 </p>
 
 <p align="justify">
-“Sesungguhnya syaithān bermaksud untuk menimbulkan permusuhan diantara kalian didalam al khamr (minuman keras) dan juga al maiysir (perjudian).”
+“Sesungguhnya syaithān bermaksud menimbulkan permusuhan dan kebencian di antara kalian melalui (penggunaan) khamr dan perjudian, dan (agar) ia menjauhkan kalian dari mengingat Allāh…”  
+(QS. Al-Māidah: 91)
 </p>
 
 <p align="justify">
-(QS. Al Māidah: 91)
+Ini adalah dalil-dalil dari As-Sunnah yang semakin memperjelas pentingnya bersatu dalam agama dan larangan berpecah belah.
 </p>
 
 <p align="justify">
-Ini adalah dalīl-dalīl dari As sunnah yang semakin memperjelas bagi kita tentang pentingnya bersatu didalam agama dan juga larangan didalam berpecah belah.
+Yang dimaksud bersatu di sini adalah bersatu di atas hak (bersatu di atas kebenaran), bukan larangan untuk beramar ma'ruf nahi munkar.
 </p>
 
 <p align="justify">
-Yang dimaksud dengan bersatu disini adalah bersatu diatas hak (bersatu diatas kebenaran) dan larangan berpecah belah.
+Bersatu bukan berarti kita tidak beramar ma'ruf nahi munkar; kita diperintahkan bersatu — satu dalam aqidah, satu dalam ibadah, satu dalam muamalah — namun kita juga diperintah saling menasihati, amar ma'ruf nahi munkar.
 </p>
 
 <p align="justify">
-Yang dimaksud bersatu diatas kebenaran bukan berarti seseorang dilarang untuk beramar ma’ruf nahi mungkar (memerintahkan jelas yang ma’ruf dan melarang dari kemungkaran).
-</p>
-
-<p align="justify">
-Bersatu bukan berarti kita tidak beramar ma’ruf nahi munkar, kita diperintahkan untuk bersatu, satu didalam ‘aqidah satu didalam ibadah, satu didalam bermuamalah dan dilarang kita saling berpecah belah akan tetapi kita juga diperintahkan oleh Allāh Subhānahu wa Ta’āla untuk saling beramar ma’ruf nahi munkar.
-</p>
-
-<p align="justify">
-Jadi bersatu bukan berarti tidak boleh saling menasehati antara satu dengan yang lain, bukan berarti tidak boleh kita saling beramar ma’ruf nahi munkar.
-</p>
-
-<p align="justify">
-Bahkan persatuan umat Islām diantara wasīlahnya adalah dengan ber’amar ma’ruf nahi munkar.
+Bahkan persatuan umat Islam salah satu wasilahnya adalah dengan beramar ma'ruf nahi munkar.
 </p>
 
 <p dir="rtl" align="right">
@@ -131,10 +116,7 @@ Bahkan persatuan umat Islām diantara wasīlahnya adalah dengan ber’amar ma’
 </p>
 
 <p align="justify">
-“Hendaklah kalian berpegang teguh dengan hablullāh (Al Qur’ān) dan jangan saling berpecah belah.”
-</p>
-
-<p align="justify">
+“Hendaklah kalian berpegang teguh pada hablullāh (Al-Qur'ān) dan jangan saling berpecah belah.”  
 (QS. Āli Imrān: 103)
 </p>
 
@@ -143,19 +125,16 @@ Bahkan persatuan umat Islām diantara wasīlahnya adalah dengan ber’amar ma’
 </p>
 
 <p align="justify">
-“Dan hendaklah ada diantara kalian golongan yang dia mengajak kepada kebaikan dan beramar ma’ruf nahi munkar, dan merekalah orang-orang yang beruntung.”
-</p>
-
-<p align="justify">
+“Dan hendaklah ada di antara kalian suatu golongan yang menyeru kepada kebajikan, menyuruh kepada yang ma'ruf, dan mencegah dari yang munkar; mereka itulah orang-orang yang beruntung.”  
 (QS. Āli Imrān: 104)
 </p>
 
 <p align="justify">
-Itulah yang bisa kita sampaikan pada kesempatan kali ini, semoga apa yang kita sampaikan bermanfaat dan sampai bertemu kembali pada pertemuan yang akan datang.
+Itulah yang bisa kami sampaikan pada kesempatan kali ini. Semoga apa yang disampaikan bermanfaat. Sampai bertemu kembali pada pertemuan berikutnya.
 </p>
 
 <p align="justify">
-Wallāhu Ta’āla A’lam.
+Wallāhu Ta'āla A'lam.
 </p>
 
 <p dir="rtl" align="right">
